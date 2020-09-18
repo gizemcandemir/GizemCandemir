@@ -14,4 +14,4 @@ You can see my skillset and portfolio [here](https://www.notion.so/Gizem-Candemi
 - 'Non-violent communication' and 'unschooling' are my favorite subjects ✌️  
 - Besides, I always like to follow tips & tricks on productivity and minimalism 💎 
 
-Feel free to reach out to me on [LinkedIn](https://www.linkedin.com/in/gizemcandemir/) :)
+Thanks for reading 😇 and feel free to reach out to me on [LinkedIn](https://www.linkedin.com/in/gizemcandemir/) 🙃
